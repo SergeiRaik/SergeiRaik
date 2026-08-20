@@ -1,1 +1,1 @@
-# raik-repo-readme
+# Sergei Raik
